@@ -19,8 +19,8 @@
 ➡️ Youtube Channels(Apna collage,etc.)<br>
 
 ### How to reach me <br>
-EMAIL : parmardhaval09092008@gmail.com<br>
-Linkdin :[ https://www.linkedin.com/in/parmar-dhaval-106955374?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3B%2BHbgNVF%2FSSCQEKtcKRxLtA%3D%3D]<br>
+<h5>EMAIL : parmardhaval09092008@gmail.com<br></h5>
+<h5>Linkdin :[ https://www.linkedin.com/in/parmar-dhaval-106955374?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3B%2BHbgNVF%2FSSCQEKtcKRxLtA%3D%3D]<br></h5>
 <br>
 ---
 <br>
